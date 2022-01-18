@@ -1,4 +1,4 @@
-### Hi there👋 Ritodeep here!
+### Hi👋 Ritodeep here!
 
 
 - 🔭 Trying to ace in the field of Computer Science
